@@ -1,4 +1,4 @@
-
+vip Goose VPN Addon | 24/7-support + port-forwarding offers the most advanced Goose VPN addon, with 24/7-support and port-forwarding. Ideal for users who value privacy and
 
 
 
